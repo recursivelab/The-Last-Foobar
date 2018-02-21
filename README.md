@@ -1,1 +1,1 @@
-# The-Last-Foobar
+These files are in public domain.
